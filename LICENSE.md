@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative sandwich attack bot | token-launch-monitoring + rug-pull-detection, the #1 sandwich attack bot. Includes token-launch-monitoring and
 
 
 
